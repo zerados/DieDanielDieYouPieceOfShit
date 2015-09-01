@@ -1,4 +1,4 @@
 # DieDanielDieYouPieceOfShit
 you know what you did
 
-you should not be interested in this file
+oh god what have I done. the horror the hummanity. the grammar? ARGH RUN
